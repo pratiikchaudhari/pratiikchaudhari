@@ -4,14 +4,14 @@
 🏆 Hackathon Winner |  
  Lifelong Learner 📚**
 
-Email Me 👉 ✉️ **pratiikchaudhari02@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **pratikchaudhariworks@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** DevOps Project
-- 🌱 **I’m currently learning:** AWS, DevOps, Cybersecutity 
+- 🌱 **I’m currently learning:** AWS, AI/ML, Cybersecutity 
 - 👯 **I’m looking to collaborate on:** Freelancing Projects
 - 🤔 **I’m looking for help with:** DevOps, Cybersecurity
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** pratiikchaudhari02@gmail.com
+- 📫 **How to reach me:** pratikchaudhariworks@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
