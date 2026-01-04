@@ -6,7 +6,7 @@
 
 Email Me 👉 ✉️ **pratikchaudhariworks@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** DevOps Project
+- 🔭 **I’m currently working on:** AI-ML Project
 - 🌱 **I’m currently learning:** AWS, AI/ML, Cybersecutity 
 - 👯 **I’m looking to collaborate on:** Freelancing Projects
 - 🤔 **I’m looking for help with:** AI/ML, Cybersecurity
